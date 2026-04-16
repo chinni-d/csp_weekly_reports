@@ -1,4 +1,4 @@
-# CSP Weekly Reports and Activity Logs (EXPANDED EDITION)
+# CSP Weekly Reports and Activity Logs
 **Project Title:** Awareness on Sustainable Aquaculture Practices
 **Location:** Razole Mandal, Konaseema District
 
