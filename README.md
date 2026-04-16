@@ -1,8 +1,6 @@
 # CSP Weekly Reports and Activity Logs (EXPANDED EDITION)
 **Project Title:** Awareness on Sustainable Aquaculture Practices
 **Location:** Razole Mandal, Konaseema District
-**Student Name:** Darapureddy Manikanta
-**Registration No:** 22221A4517
 
 ---
 
